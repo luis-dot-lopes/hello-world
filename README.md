@@ -6,4 +6,4 @@ I'm an aspiring developer, my main interest is game development, and I have prog
 
 I hope that i can use this account to post some projects like small games or some simple things made for fun.
 
-And, if my English is flawless, even though I don't think so, I'm brazilian, hehe :)
+Lastly, even if my English is flawless, and I don't think so, I'm brazilian, hehe :)
